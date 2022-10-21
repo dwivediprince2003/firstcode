@@ -1,1 +1,3 @@
-# firstcode
+Hello Everyone!
+I am under the water Here too much raining...
+Please Help me.. hueeee e eeeee..
